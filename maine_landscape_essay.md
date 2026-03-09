@@ -1,0 +1,19 @@
+# The Weight of Stone and Water
+
+Maine does not reveal itself easily. The coast comes at you sideways — through fog, through the smell of low tide brine, through the sound of a lobster boat engine running before dawn. You have to earn the view, and even then, it keeps something back.
+
+The granite is the first thing to understand. It underlies everything, literally and figuratively. The bedrock here was forged under pressure that no living thing could witness, scraped raw by ice sheets that retreated only twelve thousand years ago — a geological instant. What remains is a coastline of uncompromising angles: headlands that shear straight into the Atlantic, pink ledges that drop without apology into cold water. The softness came later, reluctantly — moss in the cracks, spruce clinging to seaward slopes with roots that look like fists.
+
+Inland, the same logic holds. Western Maine is a landscape of serious intent. The lakes sit dark and cold in their glacial basins. The mountains — Katahdin above all — rise not with the theatrical sweep of the Rockies but with a kind of blunt authority, as if they have no interest in being picturesque and simply are. Katahdin's tableland plateau sits above treeline under skies that change in minutes from blue to iron gray. Henry David Thoreau climbed it in 1846 and came back unsettled, describing it as "not even scenery" — contact with the elemental, not the pastoral.
+
+The forests are their own chapter. Northern Maine holds some of the largest uninterrupted woodland east of the Mississippi. The spruce-fir forests of Aroostook and Piscataquis counties have a density and silence that can feel disorienting. There are no soft edges. The light on an overcast November afternoon in the North Woods is the color of pewter, and the trees absorb rather than reflect it. Black flies and deer flies and the smell of rot and resin. This is not a landscape that flatters the visitor.
+
+And yet. In late September, the hardwoods along the Kennebec and Androscoggin turn a red so saturated it seems implausible, a chromatic argument against the restraint of the rest of the year. The ocean in August, on the rare days when the water temperature climbs above sixty, is a specific shade of gray-green that photographers spend their careers trying to capture. The light at four in the afternoon in October, raking low across the mudflats at low tide, turns the exposed seaweed and sand into something that looks like hammered copper.
+
+Maine is a landscape of the long view — not the panorama, but the sustained attention. The people who live here year-round understand this instinctively. They do not talk much about the beauty of the place; they talk about the weather coming in, the price of bait, whether the ice is going to be late this year. The landscape is not backdrop to them but condition — something to be read and respected, not admired from a distance.
+
+That is perhaps what distinguishes Maine from landscapes that exist primarily to be looked at. The White Mountains are spectacular; Maine is indifferent. It was here before you arrived and will be here in the same cold, exacting way after you leave. The granite will outlast us all. The tides will continue their twelve-hour argument with the shore regardless of who is watching.
+
+There is a word the landscape uses repeatedly: edge. The edge where spruce forest meets open blueberry barrens. The edge where freshwater rivers push into saltwater estuaries. The edge of land against the North Atlantic, which is not the warm Atlantic of Cape Hatteras but something older and less forgiving. Maine is a place of edges, of things not quite resolved, of beauty that sits just at the limit of comfort.
+
+It is worth the discomfort. But it will not ask you to stay.
